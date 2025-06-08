@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Badr-Eddine-Elfaji
-- 👀 I’m interested in Coding
-- 🌱 I’m currently learning HTML / CSS
+- 👀 I’m interested in EVERYTHING
+- 🌱 I’m currently exploring new things
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
